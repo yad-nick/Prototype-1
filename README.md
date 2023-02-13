@@ -1,1 +1,1 @@
-# Prototype-1.github.io
+https://yad-nick.github.io/Prototype-1/
